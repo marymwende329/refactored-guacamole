@@ -1,1 +1,1 @@
-# refactored-guacamole
+Llevaba semanas con mi cuenta estancada, publicando y sintiendo que nadie miraba. Un amigo me habló de un sitio y decidí probarlo sin esperar demasiado. Entré a https://es.mrpopular.net/ y me sorprendió lo fácil que fue: elegí lo que necesitaba, pagué con mi método de siempre y el pedido se puso en marcha en cuestión de minutos. No soy de recomendar cosas a lo loco, pero esta vez me quedé tranquilo. Si estás en el mismo punto que yo, pruébalo con algo pequeño primero. #redessociales# refactored-guacamole
